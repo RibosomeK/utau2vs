@@ -1,2 +1,0 @@
-# utau2vs
-吃下oto和presamp吐出lsd和vsdxmf的东东
